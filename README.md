@@ -1,0 +1,1 @@
+# Measure-the-pulse-of-Prosperity-index-of-financial-freedom-Analysis
